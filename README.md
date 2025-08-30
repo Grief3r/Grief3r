@@ -7,7 +7,7 @@ About me :
 
 ∘₊✧──────✧₊∘
 
-Aezra/ishmael/meddy ◆ he/him/we/us ◆ 16
+Kris/Griefer◆ we/us + non-binary◆ 16
 
 
 ![](https://files.catbox.moe/4q2b0b.webp)
