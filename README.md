@@ -1,26 +1,30 @@
-![])
-# ""
-— ![]() 
 
+# "It's me! Coil! From the streets!"
+<img src="https://files.catbox.moe/4kxfua.png" width="738">
 About me :
 
 
 ∘₊✧──────✧₊∘
 
-Coil!◆ we/us + non-binary◆ 16
-
-
-![]()
+Coil!◆ we/us + non-binary◆ 16 ◆ 
 
 ∘₊✧──────✧₊∘
+
+◆ wlw ◆ men pmo ◆ im just a girl ◆ (pls get the ref)
+
+
+<img src="https://files.catbox.moe/3igonc.png" width="238">
+
+
+
 
 ───♡──────────────
 
  ♡ My Favorite...
 
-┇Song: audit/lonely in gorgeous/fame is a gun!
+┇Song:NEURODIVERGENCE/aduit/any kind of songs rly ^^
 
-┇Game: PHIGHTING!
+┇Game: PHIGHTING!<img src="https://files.catbox.moe/sok3iy.png" width="40">
 
 ───♡──────────────
 
@@ -28,7 +32,7 @@ Coil!◆ we/us + non-binary◆ 16
  
 ┇Timezone: UTC+03:00
 
-┇DM Status: semi busy / half free
+┇DM Status: pretty free currently!
 
 ───♡──────────────
 
@@ -42,9 +46,14 @@ likes and additional info!
 
 
 ∘₊✧──────✧₊∘
-![](https://files.catbox.moe/k5afru.gif)
 
-MY QUALIFICATIONS AS A MEDKIT MAIN!!:
+
+<img src="https://files.catbox.moe/ajnim3.gif" width="238">
+
+
+
+
+MY QUALIFICATIONS AS A MEDKIT MAIN!(its pretty old) :
 
 ![](https://files.catbox.moe/81hgs1.webp)
 
